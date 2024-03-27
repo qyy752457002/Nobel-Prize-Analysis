@@ -5,6 +5,8 @@
 ![image](https://github.com/qyy752457002/Nobel-Prize-Analysis/assets/88706924/a48dc70d-0275-4ca4-938d-c97715cc2261)
 ![image](https://github.com/qyy752457002/Nobel-Prize-Analysis/assets/88706924/addb3b21-0103-4279-8cbd-1ece7a3070a2)
 ![image](https://github.com/qyy752457002/Nobel-Prize-Analysis/assets/88706924/72343400-7ecd-4983-aa79-b9d26ac669fc)
+![image](https://github.com/qyy752457002/Nobel-Prize-Analysis/assets/88706924/8f7dc2d3-fef7-4346-be9e-41b40d5408cb)
+
 
 
 
